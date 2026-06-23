@@ -1,4 +1,4 @@
-# 👋 Olá, eu sou Daniel Steinbruch
+# 👋 Olá, eu sou Alexandra Glovacki
 
 ### Transformo conhecimento em soluções.
 
